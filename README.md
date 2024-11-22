@@ -37,7 +37,6 @@ Universität Trier
 54296 Trier, Deutschland  
 
 E-Mail: [fsrmathe@uni-trier.de](mailto:fsrmathe@uni-trier.de)  
-Webseite: [www.uni-trier.de/fachschaft-mathematik](https://www.uni-trier.de/fachschaft-mathematik)](https://www.uni-trier.de/universitaet/fachbereiche-faecher/fachbereich-iv/allgemein/fachschaften/fsr-mathematik/willkommen)
 
 ---
 
